@@ -1,1 +1,0 @@
-# ai_powered_venture_design
